@@ -1,2 +1,2 @@
-![musiclyt](https://user-images.githubusercontent.com/50313283/130314603-84087adf-8409-463c-9ad6-1b046d1151b8.png)
+![web_hi_res_512](https://user-images.githubusercontent.com/50313283/130314626-36a279b4-8bef-4614-83e8-c6ab1aea7510.png)
 # Musiclyt
